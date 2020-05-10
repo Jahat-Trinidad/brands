@@ -1,1 +1,1 @@
-Wallpapers para Ayün Linux.
+Wallpapers y demas recursos de branding para Ayün Linux.
